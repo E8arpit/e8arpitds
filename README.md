@@ -46,5 +46,5 @@ I love working at the intersection of **data, code, and business impact** — wh
 
 ### 📬 Let’s Connect  
 - 💼 LinkedIn:(https://linkedin.com/in/e8arpit)  
-- 🐦 Twitter: [@yourhandle](https://twitter.com/e8arpit)   
+- 🐦 Twitter: (https://twitter.com/e8arpit)   
 
